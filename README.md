@@ -1,5 +1,8 @@
 # python-app
 merhabalar
-nasılsınız
-iyiyim 
-teşekkürler
+3333333
+
+44444
+66666
+44444
+
